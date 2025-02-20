@@ -1,2 +1,2 @@
 # boostaro-buynow
-Gluco6™ supports balanced blood sugar and boosts energy naturally. Order your bottle for only $39 at 80% off – visit our site for reviews, pricing, and offers!
+Boostaro™ supports sexual vitality and energy naturally. Order your $49 bottle at 83% off now – limited offer. Visit our site for reviews and deals.
